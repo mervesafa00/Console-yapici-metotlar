@@ -1,1 +1,1 @@
-![Ekran görüntüsü 2025-02-07 160839](https://github.com/user-attachments/assets/cc4d16f9-1371-45f6-ba9a-b16731381190)
+![Ekran görüntüsü 2025-02-07 161558](https://github.com/user-attachments/assets/ac6afb1b-6718-4c5f-bd59-24cd7bd484df)
